@@ -15,4 +15,11 @@ If you're interested in collaboration, need support on a design-driven project, 
 
 [Wix Partner Portfolio](https://www.wix.com/studio/community/partners/pixelica-interactive)
 
+[X.com](https://x.com/pixelicanet)
+
+[Instagram](https://www.instagram.com/pixelicainteractive/)
+
+[Facebook](https://www.facebook.com/pixelica.interactive)
+
+[linktr](https://linktr.ee/pixelica)
 
