@@ -4,6 +4,8 @@
 I’m constantly learning, exploring new approaches, and always excited to contribute to meaningful projects.
 
 ## My Works
+[Github Profile](https://github.com/faltay)
+
 [Web Design Agency](https://pixelica.net/)
 
 [Figma Works](https://www.figma.com/@pixelica)
